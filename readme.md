@@ -1,2 +1,2 @@
 Xin chào 
-Nguyễn Hoàng Linh
+Nguyễn Hoàng Linh Học Trường đại học mỏ địa chất
